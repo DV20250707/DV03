@@ -24,6 +24,6 @@
 如果你想快速找到日本AV免费资源，又不想被广告打扰，这些站点值得一试。完全免费，安全无毒，高清不卡，是目前最受用户欢迎的免费视频平台之一。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/DV20250707/DV03 ）</span>
 
 
